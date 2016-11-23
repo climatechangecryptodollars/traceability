@@ -7,16 +7,17 @@ it is to make a place, used on your phone
 to scan a code of things
 
 and get the trace of it
+  
 
-
-
-it may trace nonGMO radioactive ethical rights salubrity democracy and all other sorts of things depending    
+may trace nonGMO radioactive ethical rights salubrity democracy and all other sorts of things depending    
 
 we don't know what it will trace but it has to be able to   
 
+map qnd directions  of the goods that compose the good
 
 
 from the sowing to the harvest to the shipping to the distribution   
+
 
  wiki in its use 
  
